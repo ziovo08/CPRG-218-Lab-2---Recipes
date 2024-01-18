@@ -113,3 +113,20 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Mochi
+
+Ingridents: 
+- 1 cup mochiko sweet rice flour
+- 1 cup water
+- 1/4 cup sugar 
+- katakuriko for dusting
+
+Instructions:
+1. Mix mochiko and sugar in a bowl. 
+2. Add water and mix thoroughly.
+3. Put in a microwavable dish. Cover with plastic wrap. 
+4. Microwave on high for 4 minutes.
+5. Take off plastic wrap and cool for a few minutes.
+6. Dust with katakuriko
+7. Cut and serve. 
